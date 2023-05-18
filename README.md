@@ -1,3 +1,3 @@
 # Code_Friends
 
-![bournout](C:\Users\Beatriz\Escritorio\sworsy-code.gif)
+![Code_Friends](C:\Users\Beatriz\Escritorio\sworsy-code.gif)
