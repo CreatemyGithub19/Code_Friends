@@ -1,3 +1,3 @@
 # Code_Friends
 
-![Code_Friends](C:\Users\Beatriz\Escritorio\sworsy-code.gif)
+![Code_Friends](https://media.tenor.com/jkOCtI7TwRIAAAAM/sworsy-code.gif)
